@@ -8,4 +8,6 @@
 
 -> Technician: Centrum Edukacyjne Nova (ICT, Warszawa, 2006).
 
--> [My Webite](https://wardakowski.pl.tl).
+-> [My Website](https://wardakowski.pl.tl).
+
+-> [YouTube Channel @RockMetalElectronicPlaylists](https://youtube.com/@RockMetalElectronicPlaylists).
